@@ -1,1 +1,2 @@
-# RichardKwakuOpoku
+MY PORTFOLIO.
+YOU'RE WELCOME.
